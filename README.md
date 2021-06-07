@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dead-Loner
+- 👀 I’m interested in programming.
+- 🌱 I’m currently learning to become less of an idiot.
+- 💞️ I’m looking to collaborate on nothing currently.
+- 📫 How to reach me send a gmail to aheintveit@sveioskulen.no
